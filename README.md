@@ -9,7 +9,7 @@ Kullanıcılar, sade ve şık arayüz sayesinde kripto para bilgilerine kolayca 
 Aşağıdaki GIF, sitenin genel görünümünü ve kullanıcı deneyimini yansıtmaktadır:
 
 
-![](/Video/Cryptoversee.mp4)
+![](/Video/CryptoVerse-ezgif.com-video-to-gif-converter.gif)
 
 
 
